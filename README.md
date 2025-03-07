@@ -1,0 +1,1 @@
+# adwis_privacy_policy
